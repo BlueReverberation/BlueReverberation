@@ -11,14 +11,14 @@ Hello, you may *call me kazern / feesle*
 „ . 영원히 피는 꽃이라니, 정말 아름답지 않나요?
 
 about me! ^⁠‿⁠^
-- 📍 , im kind of *anti social* so i dont really like starting a topic / conversation .
+- ⚜️ , im kind of *anti social* so i dont really like starting a topic / conversation .
 - 💡 , i love characters that are inspired / based off books! ^o^
   + my quick examples : project moon characters, which is all of limbus company sinners .
 - 📞 , if youre a fan of forsaken, project moon, minecraft youtubers, or even object shows PLEASE *interact* i beg .
-- 🏎️ , i love car games where it lets you to *free play* instead of actually racing .
-- 🎲 , i have a *gambling addiction* so i would roll the dice (/roll) anytime randomly at unexpected time .
-- 🧩 , i love making papercrafts!! but i hate everytime my printer colour ink stops working / error / miscoloured . (⁠╯⁠︵⁠╰)
-- 🕯️ , my hobbies! : (⁠≧⁠▽⁠≦⁠)
+- 🎗️ , i love car games where it lets you to *free play* instead of actually racing .
+- 📒 , i have a *gambling addiction* so i would roll the dice (/roll) anytime randomly at unexpected time .
+- 🐤 , i love making papercrafts!! but i hate everytime my printer colour ink stops working / error / miscoloured . (⁠╯⁠︵⁠╰)
+- 🎧 , my hobbies! : (⁠≧⁠▽⁠≦⁠)
    + cooking
    + drawing
    + drying flowers

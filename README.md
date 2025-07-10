@@ -54,4 +54,6 @@ about me! ^⁠‿⁠^
  + hazbin hotel fans, helluva boss fans, or any other shows that vivziepop has made
 
 <!-- end -->
-![aecca4011501dc9c98667df46e20d739](https://github.com/user-attachments/assets/277d9712-105a-4fee-85b4-d4995c924edc)
+🌹 . extra image of a flower (⁠＾⁠∇⁠＾⁠)⁠ﾉ⁠♪
+
+[![aecca4011501dc9c98667df46e20d739](https://github.com/user-attachments/assets/277d9712-105a-4fee-85b4-d4995c924edc)](https://deltarune.com/lancer/)

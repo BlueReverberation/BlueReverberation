@@ -1,8 +1,8 @@
-049ae06b7342845bd070149e920c7698](https://github.com/user-attachments/assets/beb11461-cabf-499f-9780-26a47081b06a)
+![049ae06b7342845bd070149e920c7698](https://github.com/user-attachments/assets/beb11461-cabf-499f-9780-26a47081b06a)
 <!-- introduction -->
 hey, you may *call me kazern / feesle*
 
-you can find me in *dock*, *lab rps*, *infection rps*, *hangouts*, *free builds*, or *any other roleplays i find interesting*
+you can find me in *dock*, *lab rps*, *infection rps*, *hangouts*, *free builds*, or *any other interesting parties / rps*
 <!-- link -->
 " . permission to sign atabook?
 ### [🌼 › (⁠>⁠▽⁠<⁠) atabook .](https://weedyaoi.atabook.org/)

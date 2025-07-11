@@ -1,11 +1,11 @@
-![049ae06b7342845bd070149e920c7698](https://github.com/user-attachments/assets/beb11461-cabf-499f-9780-26a47081b06a)
+049ae06b7342845bd070149e920c7698](https://github.com/user-attachments/assets/beb11461-cabf-499f-9780-26a47081b06a)
 <!-- introduction -->
-Hello, you may *call me kazern / feesle*
-<!-- an speech uhh -->
-" How much longer must I walk until I reach an end? How tightly must I shut my eyes, cover my ears, and zip my mouth to keep what’s around me safe before I can feel a semblance of happiness that won’t leave me? I thought I had to overcome this pain and rise above it to become a tougher man. That way, I wouldn’t lose those that are close to me. However, a human is fragile by nature; if one is too weak, they would crumble—and if one is too hardy, they would snap. I realized that there’s little I can do to calm the disorder of this world. How can I live on without falling to despair, then? A mind that is willing to let go of things that were destined to leave at some point. A mind that is content to have nothing. I feel that it’s important to refrain from thinking that anything is in my possession. I followed your troupe in order to find a way to be happy, but what good did it do for me? Staying with you only exacerbated my suffering, defeating the whole purpose of joining you in the first place. I do want to add that you were not at fault here, though. I was the one who tormented myself. Had I known what I know now back in the past… would that have lessened the pain or changed anything? No, I don’t blame myself for the choice in that moment. Even the failures and misery of the past were all part of the voyage leading up to this moment, so I’m thankful that I managed to achieve something for once. I might have drowned in my own tears and sorrow back then, but ultimately, I’m grateful for the choice I made… and all the things in the world. ", - philip's page .
+hey, you may *call me kazern / feesle*
+
+you can find me in *dock*, *lab rps*, *infection rps*, *hangouts*, *free builds*, or *any other roleplays i find interesting*
 <!-- link -->
 " . permission to sign atabook?
-### [(⁠>⁠▽⁠<⁠) atabook .](https://weedyaoi.atabook.org/)
+### [🌼 › (⁠>⁠▽⁠<⁠) atabook .](https://weedyaoi.atabook.org/)
 <!-- about or fun facts log -->
 ![5d7f0efa40357ad6a2c4420f984194b6](https://github.com/user-attachments/assets/c8069de4-4404-4a91-b229-b4d7bc1c36b4)
 „ . 영원히 피는 꽃이라니, 정말 아름답지 않나요?

@@ -3,6 +3,8 @@
 hey, you may *call me kazern / feesle*
 
 you can find me in *dock*, *lab rps*, *infection rps*, *hangouts*, *free builds*, or *any other interesting parties / rps*
+
+|| iwc since im little bit sensitive
 <!-- link -->
 " . permission to sign atabook?
 ### [🌼 › (⁠>⁠▽⁠<⁠) atabook .](https://weedyaoi.atabook.org/)

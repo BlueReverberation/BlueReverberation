@@ -1,31 +1,40 @@
-![049ae06b7342845bd070149e920c7698](https://github.com/user-attachments/assets/beb11461-cabf-499f-9780-26a47081b06a)
+![197bb4d2ad3db130ca2109ceb0672ac2](https://github.com/user-attachments/assets/285abaf1-0cf4-4064-9a27-6f4f3516eb33)
 <!-- introduction -->
 hey, you may *call me kazern / feesle*
 
 you can find me in *dock*, *lab rps*, *infection rps*, *hangouts*, *free builds*, or *any other interesting parties / rps*
 
 || iwc since im little bit sensitive
+
+|| status :
+  + 🟢 : available anytime .
+  + 💬 : bored and looking for an interaction (*feel free to interact!*) .
+  + 🌙 : away / busy / not available / offtab .
 <!-- link -->
+
 " . permission to sign atabook?
-### [🌼 › (⁠>⁠▽⁠<⁠) atabook .](https://weedyaoi.atabook.org/)
+
+### [🍇 › (⁠>⁠▽⁠<⁠) atabook .](https://weedyaoi.atabook.org/)
 <!-- about or fun facts log -->
-![5d7f0efa40357ad6a2c4420f984194b6](https://github.com/user-attachments/assets/c8069de4-4404-4a91-b229-b4d7bc1c36b4)
+<img width="1280" height="1280" alt="Untitled70_20250711233028" src="https://github.com/user-attachments/assets/ece8c9a3-8eb0-4b71-90c6-67964aaebecf" />
+
 „ . 영원히 피는 꽃이라니, 정말 아름답지 않나요?
 
 about me! ^⁠‿⁠^
-- ⚜️ , im kind of *anti social* so i dont really like starting a topic / conversation .
-- 💡 , i love characters that are inspired / based off books! ^o^
+- 🕘 , im kind of *anti social* so i dont really like starting a topic / conversation .
+- 🕛 , i love characters that are inspired / based off books! ^o^
   + my quick examples : project moon characters, which is all of limbus company sinners .
-- 📞 , if youre a fan of forsaken, project moon, minecraft youtubers, or even object shows PLEASE *interact* i beg .
-- 🎗️ , i love car games where it lets you to *free play* instead of actually racing .
-- 📒 , i have a *gambling addiction* so i would roll the dice (/roll) anytime randomly at unexpected time .
-- 🐤 , i love making papercrafts!! but i hate everytime my printer colour ink stops working / error / miscoloured . (⁠╯⁠︵⁠╰)
-- 🎧 , my hobbies! : (⁠≧⁠▽⁠≦⁠)
+- 🕑 , if youre a fan of forsaken, project moon, minecraft youtubers, or even object shows PLEASE *interact* i beg .
+- 🕒 , i love car games where it lets you to *free play* instead of actually racing .
+- 🕓 , i have a *gambling addiction* so i would roll the dice (*/roll*) anytime randomly at unexpected time .
+- 🕔 , i love making papercrafts!! but i hate everytime my printer colour ink stops working / error / miscoloured . (⁠╯⁠︵⁠╰)
+- 🕕 , my hobbies! : (⁠≧⁠▽⁠≦⁠)
    + cooking
    + drawing
    + drying flowers
    + writing
-- 💬 , favorite characters / people!
+   + coding (im still new at it)
+- 🕖 , favorite characters / people!
    + [philip, library of ruina](https://libraryofruina.wiki.gg/wiki/Philip)
    + [princezam](https://lifesteal.fandom.com/wiki/PrinceZam)
    + [lowell, library of ruina](https://libraryofruina.wiki.gg/wiki/Lowell)
@@ -43,7 +52,7 @@ about me! ^⁠‿⁠^
    + [door, reverse 1999](https://reverse1999.fandom.com/wiki/Door)
    + [wei wuxian / wei ying, the grandmaster of demonic cultivation](https://modao-zushi.fandom.com/wiki/Wei_Wuxian)
 <!-- dni / thin ice log -->
-![9b654f201e6b431af31a0e8043c22ddf](https://github.com/user-attachments/assets/66a37aac-5533-4a96-a56a-b6c2f43e3915)
+![90f75c8a42d627e5b53f1b8e00b3be03](https://github.com/user-attachments/assets/bfb3b113-8329-4183-b1e8-418c9d030b8b)
 📜 ' dni and thin ice lists :
   + dandys world fan (specifically the ones that focusses on ships more than gameplay)
   + pedophiles and zoophilias (*heavy dni*)
@@ -56,7 +65,8 @@ about me! ^⁠‿⁠^
  + hazbin hotel fans, helluva boss fans, or any other shows that vivziepop has made
 
 <!-- end -->
-🌻 . ⁠♪
+[ 🎧 . end , ; 🌙 ]
 
 —"—
-[![31b68b7657a76298445edfc64ae3ff8d](https://github.com/user-attachments/assets/4f71f4d8-90e6-42fa-94a8-0bb2e5851e39)](https://deltarune.com/lancer/)
+[![5a300d80cfd8a840d061bd09f7b070b2](https://github.com/user-attachments/assets/07e26906-b4c0-49d8-bccb-127a54acfa4c)
+](https://deltarune.com/lancer/)

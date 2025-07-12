@@ -6,6 +6,8 @@ you can find me in *dock*, *lab rps*, *infection rps*, *hangouts*, *free builds*
 
 || i am very a patient and trusted person so you can trust me anytime!
 
+   + i run / own an discord server. If you want to join my essemble, then whisper me and ill send invitation to _The Reverberation Essemble_. (try asking again when my status is 🟢, or 💬 if i dont respond)
+
 || status :
   + 🟢 : available anytime .
   + 💬 : bored and looking for an interaction (*feel free to interact!*) .

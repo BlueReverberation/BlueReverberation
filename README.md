@@ -14,7 +14,7 @@ you can find me in *dock*, *lab rps*, *infection rps*, *hangouts*, *free builds*
 
 " . permission to sign atabook?
 
-### [🍇 › (⁠>⁠▽⁠<⁠) atabook .](https://weedyaoi.atabook.org/)
+### [🍇 › (⁠>⁠▽⁠<⁠) atabook .](https://dawnkazern.atabook.org/)
 <!-- about or fun facts log -->
 <img width="1280" height="1280" alt="Untitled70_20250711233028" src="https://github.com/user-attachments/assets/ece8c9a3-8eb0-4b71-90c6-67964aaebecf" />
 

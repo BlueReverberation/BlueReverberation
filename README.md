@@ -4,7 +4,7 @@ hey, you may *call me kazern / feesle*
 
 you can find me in *dock*, *lab rps*, *infection rps*, *hangouts*, *free builds*, or *any other interesting parties / rps*
 
-|| iwc since im little bit sensitive
+|| i am very a patient and trusted person so you can trust me anytime!
 
 || status :
   + 🟢 : available anytime .

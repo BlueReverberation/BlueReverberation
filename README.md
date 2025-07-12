@@ -66,8 +66,9 @@ about me! ^⁠‿⁠^
  + dandys world fans
  + hazbin hotel fans, helluva boss fans, or any other shows that vivziepop has made
 <!-- fandoms -->
-_all_ fandoms im in : (you can talk about those fandoms if you want to whilst interacting with me!)
-    + project moon, block tales, kaleidoscope roblox, phighting, i have no mouth and i must scream, lifesteal smp, plant versus zombie, fundamental paper education, dream game, lego movie, touhou, reverse 1999, ena, battle for dream island, inanimate insanity, hfjone, genesis smp, kaboodle smp, murder drones, mili, cookie run, bendy and the ink machine, nezha, regretevator, homestuck, its time for the, korean fried chicken, one / hfjone, animatic battle, forsaken, just cause playstation, genshin impact, honkai star rails, zenless zone zero, the broken script, unstable universe, alien stage, catch teenieping, shinbi apartment, miniforce, super wings, grandmaster of demonic cultivation, henry stickmin, pokemon, object overload, object redundancy, kaiju paradise, happyville, friday night funkin, analog horrors, chiikawa, let him go, the disastrous life of saiki k, awaawa, forza horizon, war thunder, minecraft youtubers, omori, countryballs, countryhumans, just shape and beats
+_all_ fandoms im in : (you can talk about those fandoms if you want to while interacting with me!)
+
++ project moon, block tales, kaleidoscope roblox, phighting, i have no mouth and i must scream, lifesteal smp, plant versus zombie, fundamental paper education, dream game, lego movie, touhou, reverse 1999, ena, battle for dream island, inanimate insanity, hfjone, genesis smp, kaboodle smp, murder drones, mili, cookie run, bendy and the ink machine, nezha, regretevator, homestuck, its time for the, korean fried chicken, one / hfjone, animatic battle, forsaken, just cause playstation, genshin impact, honkai star rails, zenless zone zero, the broken script, unstable universe, alien stage, catch teenieping, shinbi apartment, miniforce, super wings, grandmaster of demonic cultivation, henry stickmin, pokemon, object overload, object redundancy, kaiju paradise, happyville, friday night funkin, analog horrors, chiikawa, let him go, the disastrous life of saiki k, awaawa, forza horizon, war thunder, minecraft youtubers, omori, countryballs, countryhumans, just shape and beats
 
 <!-- end -->
 [ 🎧 . end , ; 🌙 ]

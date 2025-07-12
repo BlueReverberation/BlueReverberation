@@ -12,12 +12,9 @@ you can find me in *dock*, *lab rps*, *infection rps*, *hangouts*, *free builds*
   + 🟢 : available anytime .
   + 💬 : bored and looking for an interaction (*feel free to interact!*) .
   + 🌙 : away / busy / not available / offtab .
-<!-- link -->
 
-" . permission to sign atabook?
-
-### [🍇 › (⁠>⁠▽⁠<⁠) atabook .](https://dawnkazern.atabook.org/)
 <!-- about or fun facts log -->
+
 <img width="1280" height="1280" alt="Untitled70_20250711233028" src="https://github.com/user-attachments/assets/ece8c9a3-8eb0-4b71-90c6-67964aaebecf" />
 
 „ . 영원히 피는 꽃이라니, 정말 아름답지 않나요?
